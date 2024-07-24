@@ -1,0 +1,7 @@
+- 👋 Hi, I’m Lindsey
+- 👀 I’m interested in Nuclear Engineering and Project Management
+- 🌱 I’m currently learning skills to advance my career
+- 💞️ I’m looking to collaborate on Projects in the Nuclear Industry
+- 📫 How to reach me: https://www.linkedin.com/in/zimmerman-lindsey/
+- 😄 Pronouns: she/her
+- ⚡ Fun fact: I have read over 150 novels in 2024
